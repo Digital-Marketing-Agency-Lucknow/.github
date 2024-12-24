@@ -1,8 +1,5 @@
 # #1 Digital Marketing Agency In Lucknow (Call: +917755025225)
 
-### [Click Here to Call](https://tel:+917755025225)
-
-
 ## 🌟 Welcome to Digital Marketing Lucknow Agency
 
 **Digital Marketing Lucknow Agency** is the premier digital marketing partner in Lucknow, dedicated to elevating your brand's online presence and driving measurable growth. With a team of seasoned experts, we specialize in creating customized marketing strategies that deliver exceptional results.
